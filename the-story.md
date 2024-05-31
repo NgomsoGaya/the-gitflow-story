@@ -4,3 +4,5 @@ Once upon a time on the African savannah it was day break. And the crocodile jus
 
 <!-- Mthunzi line -->
 curios Elephant was in search of better water and grass. While staying out of dangers on the savannah.
+
+Once upon a time on the African savannah it was day break. And the rhino was running in the rain as if he was chasing rainbows and sunshines.
