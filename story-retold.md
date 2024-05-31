@@ -3,3 +3,4 @@ Once upon a time on the African savannah it was day break. And the crocodile jus
 And the curios Elephant was in search of better water and grass. While staying out of dangers on the savannah. 
 And the Zebra was grazing peacefully, while an elephant splashed around in a muddy water.
 While the rhino was running in the rain as if he was chasing rainbows and sunshines.
+Something about an Ostrich in the Savannahs
